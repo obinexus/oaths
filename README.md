@@ -4,9 +4,12 @@
 
 ## Founders Promise - OBINexus First OATH
 ```
+M is for manifesto - the antiburactic theory.
+V stands for Vision - the vision for the application.
+the change started with me, the change started with U.
 I will not become what once sought to break me,
-I will build what must and will HEAL US ALL
-for what is yet to be, I became.
+I will build what must and will HEAL US ALL.
+For what is yet to be, I became.
 
 Signed: OBINexus Nnamdi Michael Okpala
 Date: 19/09/2025
